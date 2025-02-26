@@ -10,11 +10,11 @@
 
 ###
 
-<p align="left">👦 24 years<br>✨ Creating bugs since ...<br>📚 Master degree in vision artificielle<br>🥅 2025 Goals:  to make 1000 $<br>💬 Always open to DMs feel free to ask me</p>
+<p align="left">👦 24 years<br>✨ Creating  web pages since 2022 ...<br>📚 Master degree in vision artificielle<br>🥅 2025 Goals:  to make 1000 $<br>💬 Always open to DMs feel free to ask me</p>
 
 ###
 
-<h2 align="left">You can connect me on this</h2>
+<h2 align="left">You can contact with me on </h2>
 
 ###
 
